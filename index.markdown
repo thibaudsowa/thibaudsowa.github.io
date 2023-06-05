@@ -6,9 +6,11 @@ title:  "Weekend en forêt noire"
 
 # Weekend en forêt noire 🥰
 
-Du 30 Juin au 2 Juillet
+➡️ Du 30 Juin au 2 Juillet
 
-Avec Titou
+➡️ Avec Titou
+
+➡️ Avec des bisous
 
 ## Vendredi
 
@@ -51,3 +53,5 @@ On se redirige vers chez nous, en visitant les petits villages sur la route en f
 Et on retrouve nos loulous chez Papou et Mamour ! (enfinnn ! 😂)
 
 <iframe src="https://www.google.com/maps/d/embed?mid=1-HWyw0yiRtwshQoyQiuR76ktMfGQ5jg&ehbc=2E312F" width="100%" height="480"></iframe>
+
+Et voilà ! 😘
