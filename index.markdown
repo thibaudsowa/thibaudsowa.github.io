@@ -6,6 +6,10 @@ title:  "Weekend en forêt noire"
 
 # Weekend en forêt noire 🥰
 
+Du 30 Juin au 2 Juillet
+
+Avec Titou
+
 ## Vendredi
 
 On dépose les garçons chez tata le matin ! C'est parti pour un weekend en amoureux 💞
